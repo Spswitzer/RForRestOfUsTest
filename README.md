@@ -1,3 +1,3 @@
 Susan P Switzer
-Wednesday, Feb 7, 2024
+Wednesday, February 7, 2024
 RAD Team
